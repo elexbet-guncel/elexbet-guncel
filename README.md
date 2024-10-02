@@ -1,0 +1,3 @@
+<h2><a href="http://gg.gg/1cbb75">ELEXBET MOBİL SİTESİNE GİRİŞ !!!</a></h2>
+
+<h3>ELEXBET GÜVENLİ GÜNCEL GİRİŞ ADRESİNİ ZİYARET ET! ELEXBET RESMİ BİLGİLENDİRME PLATFORMUNDASINIZ!</h3>
